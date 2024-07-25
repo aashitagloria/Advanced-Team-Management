@@ -6,6 +6,8 @@ https://drive.google.com/file/d/1GdTSJiX9aptmx0BGe3LbSOxox_SUD1Ib/view?usp=shari
 
 <h3> Project Report Highlights and Summary </h3>
 
+Lesson Plan: https://drive.google.com/file/d/1WTeOYj8fug0f65LLE4mAswdwjDjkjbO5/view?usp=sharing <br>
+
 <h1> 📓 COURSE RELATED NOTES  </h1>
 
 <p> The course had some extensive Case studies that you can access here: <br> <br>
