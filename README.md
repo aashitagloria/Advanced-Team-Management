@@ -16,5 +16,7 @@ Lesson Plan: https://drive.google.com/file/d/1WTeOYj8fug0f65LLE4mAswdwjDjkjbO5/v
   Solution Implemented: https://drive.google.com/file/d/1Vdizv1TmJomN5GsMvtypBNoF2KAN3Y6I/view?usp=sharing <br> </p>
   2. Report on Learning and Effectiveness Paradigm with Success and Failure examples<br><br>
   https://drive.google.com/file/d/1sp8z7XSPdlBGcetojBRKrtZbahOsdA4g/view?usp=sharing
+  3. Case Study Analysis on Team Design and Team Roles<br><br>
+  https://drive.google.com/file/d/1rHqtWB2bGe7lxgXlBG1ToKEthPYfHEG7/view?usp=sharing
 
 <h1> Study Notes: Coming Soon! 🌸STAY TUNED🌸 </h1>
