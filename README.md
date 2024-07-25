@@ -17,7 +17,9 @@ Lesson Plan: https://drive.google.com/file/d/1WTeOYj8fug0f65LLE4mAswdwjDjkjbO5/v
   2. Report on Learning and Effectiveness Paradigm with Success and Failure examples<br><br>
   https://drive.google.com/file/d/1sp8z7XSPdlBGcetojBRKrtZbahOsdA4g/view?usp=sharing<br><br>
   3. Case Study Analysis on Team Design and Team Roles<br><br>
-  https://drive.google.com/file/d/1rHqtWB2bGe7lxgXlBG1ToKEthPYfHEG7/view?usp=sharing
+  https://drive.google.com/file/d/1ynzmIkOktU_9u_ibYLfb_PolXREwuHsq/view?usp=sharing<br><br>
+  4. Managing a Global Team - Case Study Analysis<br><br>
+  https://drive.google.com/file/d/1149OWYXmLTXKuQ-5N_JABc1ZPx2cotIo/view?usp=sharing<br><br>
   </p>
 
 <h1> Study Notes: Coming Soon! 🌸STAY TUNED🌸 </h1>
